@@ -10,3 +10,5 @@ i block freely cause i dont want to be interupttedd
 𝒞
 ˟
 　 main acc　 extended 　(｡•̀ㅁ•́｡)
+![](https://pin.it/5kN2xtFB3
+)
